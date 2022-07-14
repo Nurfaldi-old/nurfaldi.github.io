@@ -1,7 +1,7 @@
 ## Hi! I'm Nurfaldi
 
-Data Scientist, Data Analyst, 5+ Years Experience and strong domain expertise in Business and Improvement and Real Estate Development 
+Data Scientist, Data Analyst, 5+ years of experience and strong domain expertise in business improvement and real estate development 
 
 ### Portfolio
 
-Under construction
+My portfolio is under construction, please come back later!
